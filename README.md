@@ -10,4 +10,4 @@ Found it easier and more natural to talk about my life than making up story.
 The " Book" contains home page that's acting as  a introduction to the story. Followed by 3 chapters that are telling the story and
 incase you don't like the ending there is a finale chapter called alternative ending.
 
-###B00095430
+###B00095430 - Adam Kmet
